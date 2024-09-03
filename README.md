@@ -11,3 +11,5 @@ Le Wagon 2024 Graduate
 Designed a few cars at Jaguar Land Rover (Range Rover, Defender etc.)
 
 Run a streetwear brand called [Wealth + Hellness ](www.instagram.com/wealthandhellness) 
+
+Check my portfolio out @ [EZ-RA.studio](www.ez-ra.studio) 
